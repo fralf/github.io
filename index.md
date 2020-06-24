@@ -6,3 +6,5 @@ At the age of 19 he had to join the Frensh army after his parents had obtained F
  * spain
  * english
  * italian
+ Zitat:
+> I'll be back ;-)
