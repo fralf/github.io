@@ -8,3 +8,4 @@ At the age of 19 he had to join the Frensh army after his parents had obtained F
  * italian
  Zitat:
 > I'll be back ;-)
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/e/e3/Jean_Reno_Cannes_2016.jpg/200px-Jean_Reno_Cannes_2016.jpg"/>
